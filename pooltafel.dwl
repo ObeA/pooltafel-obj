@@ -1,3 +1,0 @@
-Obe
-LAPTOP 
-28 September 2016  11:29:40
